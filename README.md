@@ -1,2 +1,2 @@
-# Thananchai
+# Thananchai & Natthawut
 Dipsy
